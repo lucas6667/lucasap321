@@ -9,4 +9,5 @@ Meu nome é Lucas Apolinário Sousa da Silva
   ### Você pode entrar em contato comigo 📫
 
   00001112145734sp@al.educacao.sp.gov.br
+  ![](https://media.tenor.com/1Dlnu_EdFSMAAAAi/fafuke-sasuke.gif)
   
